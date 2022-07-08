@@ -171,6 +171,8 @@ SECCIÓN 10–6 Aplicaciones de la inducción electromagnética
 
 4. VIDEO
 
+https://youtu.be/zDaGvrzz1D8
+
 5.	CONCLUSIONES
 
 Referente al análisis de los presentes dos capítulos estudiados pudimos concluir que: 
